@@ -15,7 +15,7 @@
 
 - 👯 I’m looking to collaborate on **on Projects**
 
-- 🤝 I’m looking for help with **Competitve coding**
+- 🤝 I’m doing **Competitve coding**
 
 - 📫 How to reach me **abhaymanavadariya818@gmail.com**
 
